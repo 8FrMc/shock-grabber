@@ -45,4 +45,4 @@ RAM🟢
 GPU🟢
 
 CPU🟢
-add me i will help u:abyss#6666
+add me i will help u:abyss#8888
