@@ -45,4 +45,4 @@ RAM🟢
 GPU🟢
 
 CPU🟢
-add me i will help u:abyss#8888 or join https://discord.gg/4mfXn7dH
+add me i will help u:abyss#8888 or join https://discord.gg/kUG2jK9Qyb
